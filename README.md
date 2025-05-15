@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Yesunkhast
+- 👋 Hi, I’m @Yesunkhast boroonii_xvn
 - 👀 I’m interested in music, chilling and sport.
 - 🌱 I’m currently learning code and guitar.
-- 💞️ I’m looking to collaborate on nice and deep people.
+- 💞️ I’m looking to collaborate on nice and thoughtful people.
 - 📫 How to reach me? It's okey dm me to 'boroonii_xvn'.
-- 😄 Pronouns: you can kill my heart, you can heal my heart.
+- 😄 Pronouns: a man can be destroyed but not defeated.
 - ⚡ Fun fact: i'm man and i'm lonely one hha.
 
 <!---
