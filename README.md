@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nice and thoughtful people.
 - 📫 How to reach me? It's okey dm me to 'boroonii_xvn'.
 - 😄 Pronouns: a man can be destroyed but not defeated.
-- ⚡ Fun fact: i'm man and i'm lonely one hha.
+- ⚡ Fun fact: i don't know what i'm doing.
 
 <!---
 Yesunkhast/Yesunkhast is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
